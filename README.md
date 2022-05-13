@@ -1,5 +1,5 @@
-👔 - Co-Founder of BreitbaND Inc. 
-💻 - Project Manager and Software Engineer @ BreitbaND Inc. 
+👔 - Co-Founder of BreitbaND Inc. <br>
+💻 - Project Manager and Software Engineer @ BreitbaND Inc. <br>
 🧸 - EL
 
 <!---
