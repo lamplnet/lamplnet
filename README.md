@@ -1,6 +1,6 @@
-👔 - Co-Founder of BreitbaND Inc. <br>
-💻 - Community Manager & COO @ BreitbaND Inc. <br>
-🧸 - EL
+👔 • Co-Founder and Chief Operating Officer @ BreitbaND Group <br>
+💻 • President @ LamplNet Solutions <br>
+🧸 • “The Team! The Team! The Team!”
 
 <!---
 lamplnet/lamplnet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
