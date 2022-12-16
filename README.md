@@ -1,4 +1,4 @@
-👔 • Co-Founder and Chief Operating Officer @ BreitbaND Group <br>
+👔 • Co-Founder @ BreitbaND Group <br>
 💻 • President @ LamplNet Solutions <br>
 🧸 • “The Team! The Team! The Team!”
 
