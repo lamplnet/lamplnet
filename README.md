@@ -1,5 +1,5 @@
 👔 • Co-Founder @ BreitbaND Group <br>
-💻 • President @ LamplNet Solutions <br>
+💻 • Founder @ LamplNet Solutions <br>
 🧸 • “The Team! The Team! The Team!”
 
 <!---
